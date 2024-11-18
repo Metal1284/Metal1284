@@ -4,7 +4,7 @@
 - ⚙️I'm currently manage a Discord Server About Samp.
 - 📫 How to reach me @metal_zz_41997 on discord.
 - 😄 Pronouns: Now I'm pronouns just have fun.
-- ⚡ Fun fact: All people have just one live
+- ⚡ Fun fact: All people have just one life.
 
 <!---
 Metal1284/Metal1284 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
